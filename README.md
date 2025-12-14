@@ -53,3 +53,4 @@ buck
 venus
 scum
 evil
+school
