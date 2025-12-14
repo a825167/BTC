@@ -37,3 +37,4 @@ in yeh idk
 hehehe
 check
 funny
+technical
