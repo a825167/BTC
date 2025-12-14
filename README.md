@@ -22,3 +22,4 @@ djfgjn
 (long ducks) 
 (jockey) 
 (kkrh oro) 
+(kahn m kro) 
