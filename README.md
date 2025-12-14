@@ -21,3 +21,4 @@ djfgjn
 (money) 
 (long ducks) 
 (jockey) 
+(kkrh oro) 
