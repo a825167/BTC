@@ -55,3 +55,4 @@ scum
 evil
 school
 dj sryy
+duniya
