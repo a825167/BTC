@@ -28,3 +28,4 @@ djfgjn
  devi ky dp tsunami
  putin desi ICC ch off
 (uk idli putin
+JFK idk in oxygen jd ci mn
