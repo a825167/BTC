@@ -36,3 +36,4 @@ thug
 in yeh idk
 hehehe
 check
+funny
