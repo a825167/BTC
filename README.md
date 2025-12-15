@@ -92,3 +92,4 @@ Cecil
 (hbo) 
 (usko) 
 (good) 
+(Igbo) 
