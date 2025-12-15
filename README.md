@@ -1,4 +1,4 @@
-just naam#BTC
+(brainlessjust naam#BTC
 sanj
 jjkkhb
 lahhj
@@ -83,3 +83,4 @@ Cecil
 (kam) 
 (brunch) 
 (usool) 
+(ishq) icon
