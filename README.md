@@ -93,3 +93,4 @@ Cecil
 (usko) 
 (good) 
 (Igbo) 
+(usne) 
