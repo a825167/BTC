@@ -102,3 +102,4 @@ j dunno
 (tank) t-shirts
 (rainbow kal) 
 (idk idk) 
+(tshirt mc CM) 
