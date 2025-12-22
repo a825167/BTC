@@ -5,7 +5,7 @@ lahhj
 djfgjn
 (tsh
 (vo off) 
-(ka kha(ka k
+(ka kh
 (urging) 
 (kgiydoyfpucouxgixp) 
 (iron iron iron India) 
