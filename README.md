@@ -11,9 +11,8 @@ djfgjn
 (i
 (vo off) 
 (u
-(ka kha(ka kha kha ka ) 
+(ka kha(ka kha k
 (urging) 
-(
 (kgiydoyfpucouxgixp) 
 (iron iron iron India) 
 (arif! ansari) 
