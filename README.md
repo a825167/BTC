@@ -35,7 +35,7 @@ in yeh
 hehehe
 check
 funny
-technical
+te
 rhi
 ch r ch hun
 RBC r
