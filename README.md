@@ -7,8 +7,7 @@ djfgjn
 (i
 (b
 (bunk) 
-(i
-(i
+(
 (vo off) 
 (u
 (ka kha(ka kha k
