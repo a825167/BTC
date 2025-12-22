@@ -23,7 +23,7 @@ djfgjn
 (kahn m kro) 
 (JFK ol ibn) 
 (
- devi ky dp tsunami
+ devi ky dp tsu
  putin desi ICC ch off
 (uk idli putin
 JFK idk in oxygen jd ci mn
