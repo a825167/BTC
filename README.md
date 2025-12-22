@@ -10,8 +10,7 @@ djfgjn
 (it'll) 
 (iron) 
 (vo off) 
-(using) 
-(NFL is) 
+(using
 (ka kha(ka kha kha ka ) 
 (urging) 
 (icon) 
