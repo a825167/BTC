@@ -3,7 +3,7 @@ sanj
 jjkkh
 lahhj
 djfgjn
-(tshirt) 
+(tsh
 (vo off) 
 (u
 (ka kha(ka kha k
