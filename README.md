@@ -13,7 +13,7 @@ djfgjn
 (urging) 
 (kgiydoyfpucouxgixp) 
 (iron iron iron India) 
-(arif! ansari) 
+(arif! ansa
 (money) 
 (long ducks) 
 (kahn m kro) 
