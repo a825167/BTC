@@ -21,7 +21,7 @@ djfgjn
 (long ducks) 
 (jock
 (kahn m kro) 
-(JFK ol ibn) 
+(JFK ol 
 (
  devi ky dp tsu
  putin desi ICC ch off
