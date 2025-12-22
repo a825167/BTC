@@ -44,7 +44,7 @@ chemo
 schul
 enth
 tr tent
-theft
+the
 urgent
 drum
 buck
