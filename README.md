@@ -5,7 +5,7 @@ lahhj
 djfgjn
 (tshirt) 
 
-(bunk) 
+(
 (
 (vo off) 
 (u
