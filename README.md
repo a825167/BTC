@@ -75,7 +75,6 @@ Cecil
 (conan) 
 (control
  (fetch Irwin) 
-(ishq) 
 (kam) 
 (brunch) 
 (usool) 
