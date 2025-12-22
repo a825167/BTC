@@ -31,7 +31,7 @@ JFK idk in oxygen jd ci mn
 vo urdu t athu heath descent
 urchin
 thug
-in yeh idk
+in yeh
 hehehe
 check
 funny
