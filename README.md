@@ -5,7 +5,6 @@ lahhj
 djfgjn
 (tsh
 (vo off) 
-(u
 (ka kha(ka kha k
 (urging) 
 (kgiydoyfpucouxgixp) 
