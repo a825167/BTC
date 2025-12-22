@@ -41,7 +41,7 @@ scuffle
 chemo
 schul
 enth
-tr tent
+tr 
 the
 urgent
 drum
