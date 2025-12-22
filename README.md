@@ -13,8 +13,7 @@ djfgjn
 (money) 
 (long ducks) 
 (kahn m kro) 
-(JFK ol 
-(
+(JFK ol
  devi ky dp tsu
  putin desi ICC ch off
 (uk idli
