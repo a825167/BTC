@@ -19,7 +19,7 @@ djfgjn
 (arif! ansari) 
 (money) 
 (long ducks) 
-(jockey) 
+(jock
 (kkrh oro) 
 (kahn m kro) 
 (JFK ol ibn) 
