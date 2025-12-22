@@ -6,7 +6,7 @@ djfgjn
 (tsh
 (vo off) 
 (k
-(urging) 
+(
 (kgiydoyfpucou
 (iron iron iron India) 
 (arif! ansa
