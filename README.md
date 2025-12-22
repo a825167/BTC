@@ -34,8 +34,6 @@ hehehe
 c
 funny
 te
-rhi
-ch r ch hun
 
 scuffle
 chemo
