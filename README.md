@@ -31,7 +31,7 @@ urchin
 thug
 
 hehehe
-check
+c
 funny
 te
 rhi
