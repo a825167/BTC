@@ -4,7 +4,6 @@ jjkkh
 lahhj
 djfgjn
 (tshirt) 
-(i
 (b
 (bunk) 
 (
