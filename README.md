@@ -7,7 +7,7 @@ djfgjn
 (vo off) 
 
 (
-(kgiydoyfpucou
+(kgiydoyfp
 (iron iron iron India) 
 (arif! ansa
 (money) 
