@@ -22,7 +22,7 @@ djfgjn
 (jock
 (kahn m kro) 
 (JFK ol ibn) 
-(cn off jo
+(
  devi ky dp tsunami
  putin desi ICC ch off
 (uk idli putin
