@@ -4,9 +4,6 @@ jjkkh
 lahhj
 djfgjn
 (tshirt) 
-
-(
-(
 (vo off) 
 (u
 (ka kha(ka kha k
