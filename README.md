@@ -25,7 +25,7 @@ djfgjn
 (
  devi ky dp tsu
  putin desi ICC ch off
-(uk idli putin
+(uk idli
 JFK idk in oxygen jd ci mn
  ch sector us in icon
 vo urdu t athu heath descent
