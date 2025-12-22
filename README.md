@@ -14,7 +14,7 @@ djfgjn
 (long ducks) 
 (kahn m kro) 
 (JFK ol
- devi ky dp tsu
+ devi ky d
  putin desi ICC ch off
 (uk idli
 JFK idk in oxygen jd 
