@@ -6,7 +6,7 @@ djfgjn
 (tsh
 (vo 
 (kgiydoyfp
-(iron iron iron 
+(iron iron 
 (arif! ansa
 (money) 
 (long ducks) 
