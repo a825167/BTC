@@ -24,7 +24,7 @@ djfgjn
 (uk idli
 JFK idk in oxygen jd 
  ch sector us 
-vo urdu t athu heath descent
+vo urdu t athu heath 
 urchin
 thug
 
