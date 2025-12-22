@@ -100,5 +100,5 @@ j dunno
 (tank) t-shirts
 (rainbow kal) 
 (idk idk) 
-(tshirt 
+(t
 (uclid) 
