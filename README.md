@@ -20,7 +20,6 @@ djfgjn
 (money) 
 (long ducks) 
 (jock
-(kkrh 
 (kahn m kro) 
 (JFK ol ibn) 
 (cn off jo
