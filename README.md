@@ -23,7 +23,7 @@ thug
 
 hehehe
 c
-funny
+fu
 te
 
 scuffle
