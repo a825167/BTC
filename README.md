@@ -57,7 +57,6 @@ Cecil
 (civ
 (hm jo) 
 (bcom) 
-(N
 (gap kel) 
 (conan) 
 (control
