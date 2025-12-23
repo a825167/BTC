@@ -2,7 +2,7 @@
 sanj
 jjkkh
 (vo 
-(kgiy
+(k
 (iron ir
 (arif! ansa
 (money) 
