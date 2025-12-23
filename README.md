@@ -11,7 +11,7 @@ jjkkh
 (JFK ol
  devi ky d
  putin desi ICC ch off
-(uk 
+(l
 JFK idk in oxygen jd 
  ch sector us 
 vo urdu t athu heath 
