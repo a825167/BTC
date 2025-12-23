@@ -4,7 +4,7 @@ jjkkh
 la
 djf
 (vo 
-(kgiydoyfp
+(kgiy
 (iron ir
 (arif! ansa
 (money) 
