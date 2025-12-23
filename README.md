@@ -1,7 +1,7 @@
 (brainlessjust naam#BTC
 sanj
 jjkkh
-(vo 
+
 (k
 (iron ir
 (arif! ansa
