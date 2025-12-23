@@ -1,7 +1,6 @@
 (brainlessjust naam#BTC
 sanj
 jjkkh
-la
 (vo 
 (kgiy
 (iron ir
