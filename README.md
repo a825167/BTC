@@ -2,7 +2,6 @@
 sanj
 jjkkh
 la
-djf
 (vo 
 (kgiy
 (iron ir
