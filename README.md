@@ -3,7 +3,6 @@ sanj
 jjkkh
 lahhj
 djfgjn
-(tsh
 (vo 
 (kgiydoyfp
 (iron ir
